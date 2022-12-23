@@ -1,1 +1,1 @@
-# putivskaya1.github.io
+# putivskaya.github.io/putivskaya1/
